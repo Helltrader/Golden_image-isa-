@@ -1,0 +1,1 @@
+# Golden_image-test2
